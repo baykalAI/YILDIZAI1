@@ -1,1 +1,1 @@
-# YildizAI-gezi
+# YILDIZAI
